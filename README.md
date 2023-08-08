@@ -1,3 +1,3 @@
 # Buho2
 
-![image](https://github.com/Jysn22/Buho2/assets/125273441/4c2fac76-bf3b-4161-8bfb-7dcf48a7f426)
+![image](https://github.com/Jysn22/Buho2/assets/125273441/e61a18f8-6ced-4bcf-b3cd-c4bc21a6f475)
